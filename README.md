@@ -68,7 +68,9 @@
 
 + **workloads** （工作量）you **dread**(恐惧)
 
+##### p30
 
++ go by the book (== follow the written law == 照本宣科)
 
 
 
