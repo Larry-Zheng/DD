@@ -72,6 +72,10 @@
 
 + go by the book (== follow the written law == 照本宣科)
 
+##### p31
+
++ It is the vegetable **some love to hate** (有些人特别讨厌)
+
 
 
 
