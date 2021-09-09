@@ -1,4 +1,5 @@
 # DD
+
 [DailyDictation](https://www.bilibili.com/video/BV1U7411a7xG?p=2)
 
 [TOC]
@@ -75,6 +76,71 @@
 ##### p31
 
 + It is the vegetable **some love to hate** (有些人特别讨厌)
+
+##### p32
+
++ **order** that the camp be shut down 命令
++ cite 陈述原因
+
+##### p33
+
++ a **preliminary** government report 初步的
++ **decommission** the facility 拆除，关闭（核电）
++ it could be decades before nearby residents who were foreced to **flee**(逃跑)
+
+##### p34
+
++ lift chairs **out of the way**  移开
++ sanitary items （用过的）卫生用品
++ it is horrific to say the least 客气点说/往轻了说 很可怕 （表明比程度比horrific强）
+
+##### p35
+
++ steer 转向（steer a car/boat/plane）
+
+##### p36
+
++ nerve-wracking 胆战心惊的
+
+##### p37
+
++ They left xxx by boat, **bound for** Thailand 开往
++ The boat was **intercepted by pirates** 被海盗阻截
++ nuance 细微差别
+
+##### p38
+
++ a gooey （胶黏的） mess snarls（扭曲，使混乱） traffic  （snarl traffic 车队形twisted了）
++ turnpike = tollway 收费公路 
++ a leaking valve（阀门） on a tanker（油罐）
+
+##### p39
+
++ it live up to its name 名副其实
++ it is not scheduled until 2012  2012之后才安排
+
+##### p40
+
++ a baker's dozen 13
++ i am in the dumps 很沮丧
++ domesticated 驯化的，家养的
++ along the side of the road
++ If you **scatter** things over an area, you throw or [drop](https://www.collinsdictionary.com/zh/dictionary/english/drop) them so that they [spread](https://www.collinsdictionary.com/zh/dictionary/english/spread) all over the area
++ more than 60 bunnies were scattered **on the shoulder** 被扔在路边
+
+##### p41
+
++ pay off the bill 清偿账单
++ sweeping（广泛的） acts of kindness
+
+##### p42
+
++ sprang（原型 spring） to his sleigh 跳进他的雪橇
++ down （绒毛） of a thistle（蒲公英）
++ exclaim 呼喊
++ drive out of sight
+
+
 
 
 
